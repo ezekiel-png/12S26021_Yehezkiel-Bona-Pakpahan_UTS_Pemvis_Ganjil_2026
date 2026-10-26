@@ -1,0 +1,1 @@
+# 12S26021_Yehezkiel-Bona-Pakpahan_UTS_Pemvis_Ganjil_2026
